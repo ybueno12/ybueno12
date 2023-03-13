@@ -1,3 +1,3 @@
-### ola hmm
+### ola 😄
 
 - 🌱 I’m currently learning  
